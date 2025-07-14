@@ -2,7 +2,7 @@
 
 
 # INFORMATION ABT ME!!
- .  . 
+ .  .
 
       ! ! 
 ✝️ ︶ : " artist , student ↓
