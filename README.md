@@ -111,8 +111,7 @@ dont mistake me for googling in
 a gtc ☹️☹️ –
   
     
-    you can vent to me but please know 
-that i am bad at comforting ppl :(
+    you can vent to me but please know that i am bad at comforting ppl :(
  . ! i have fast metabolism so
 pls dont make skinny jokes about me
 \ .  when i die, play sinking town.
@@ -120,6 +119,7 @@ pls dont make skinny jokes about me
    . PLS PLS PLS C+H WITH ME IN 
 PONY TOWN - ALWAYS INT W/ ME!!
 im always free ^q^
+if i unfriend u on ponytown then u made me mad or upset ;-;
 
 <img width="403" height="46" alt="4a5qdf" src="https://github.com/user-attachments/assets/f9665d68-28bb-424b-b43b-5ecd29267755" />
 
