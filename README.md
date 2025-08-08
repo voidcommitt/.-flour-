@@ -15,7 +15,9 @@
          — racists
        
          —  r@pists
-        
+
+         – tcoal fans
+ 
          — Darkshippers
 
          — weirdos / like actually weird 
@@ -38,6 +40,8 @@
       — squid game
  
       — journey of the west 
+
+      - Steven universe
   
       — ride the cyclone 
   
@@ -145,6 +149,8 @@ PONY TOWN - ALWAYS INT W/ ME!!
 im always free ^q^
 if i unfriend u on ponytown then u made me mad or upset ;-;
 
-<img width="403" height="46" alt="4a5qdf" src="https://github.com/user-attachments/assets/f9665d68-28bb-424b-b43b-5ecd29267755" />
+. also do yall fw hakka701
 
+
+<img width="403" height="46" alt="4a5qdf" src="https://github.com/user-attachments/assets/f9665d68-28bb-424b-b43b-5ecd29267755" />
 
