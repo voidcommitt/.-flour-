@@ -7,7 +7,7 @@
       ! ! 
 ✝️ ︶ : " artist , student ↓
 ⋆˚꩜｡ she / they () aroace #
- — straight . | something
+ — straight . | Christian 
    . 🔮 : dni list ↓↓  
        
          — Pedophiles ,
@@ -17,11 +17,13 @@
          —  r@pists
         
          — Darkshippers
-  
+
+         — weirdos / like actually weird 
+       
          — 🍇 / racist jokes
 <img width="1280" height="140" alt="zsbusz" src="https://github.com/user-attachments/assets/b3fec64f-15ad-4e45-a440-88d6226bbe46" />
 
-.🍀 : Interests ↓↓
+.🍀 : Interests / or fandoms.↓↓
     
       — Catch! teeniepings
      
@@ -45,9 +47,31 @@
    
       — golden cheese 
 
+      - fnf
+
+      - fnaf
+
+      - grocery gang 
+
+      - flamingo
+
+      - kpop demon hunters
+
+      - invader zim
+
+      - vocaloid / utauloid 
+
+      - spookiez
+
+      - spongebob squarepants
+
+      - gtc
+
+      - fashion roulettes
+
 🎨 : FAV colors!!!
 
-.     — purple (ALL SHADES)
+      — purple (ALL SHADES)
   
       — blue 
    
@@ -103,15 +127,15 @@
  
   . ↓↓↓ : 🔥
   
-    [wif3 : golden cheese and pin 
-😘😘😘 . ?
+   [wif3 : golden cheese and pin
+    😘😘😘 . ?
 
-    . reminder that i am smart so
+   . reminder that i am smart so
 dont mistake me for googling in
 a gtc ☹️☹️ –
   
     
-    you can vent to me but please know that i am bad at comforting ppl :(
+   you can vent to me but please know that i am bad at comforting ppl :(
  . ! i have fast metabolism so
 pls dont make skinny jokes about me
 \ .  when i die, play sinking town.
