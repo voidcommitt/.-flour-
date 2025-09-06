@@ -10,19 +10,19 @@
  — straight . | Christian 
    . 🔮 : dni list ↓↓  
        
-         — Pedophiles ,
+         — P3dophiles ,
        
-         — racists
+         — r@cists
        
          —  r@pists
 
-         – tcoal fans
+         – tco@l fans
  
-         — Darkshippers
+         — D@rkshippers
 
-         — weirdos / like actually weird 
+         — w3irdos / like actually weird 
        
-         — 🍇 / racist jokes
+         — 🍇 / r@cist jokes
 <img width="1280" height="140" alt="zsbusz" src="https://github.com/user-attachments/assets/b3fec64f-15ad-4e45-a440-88d6226bbe46" />
 
 .🍀 : Interests / or fandoms.↓↓
@@ -49,7 +49,7 @@
    
       — crk 
    
-      — golden cheese 
+      — alien stage 
 
       - fnf
 
@@ -72,6 +72,8 @@
       - gtc
 
       - fashion roulettes
+
+      + luka
 
 🎨 : FAV colors!!!
 
@@ -131,7 +133,7 @@
  
   . ↓↓↓ : 🔥
   
-   [wif3 : golden cheese and pin
+   [ 💜 : luka alnstg my love
     😘😘😘 . ?
 
    . reminder that i am smart so
@@ -140,9 +142,12 @@ a gtc ☹️☹️ –
   
     
    you can vent to me but please know that i am bad at comforting ppl :(
+
+   
  . ! i have fast metabolism so
 pls dont make skinny jokes about me
-\ .  when i die, play sinking town.
+
+\ .  when i die, play liquid smooth.
   
    . PLS PLS PLS C+H WITH ME IN 
 PONY TOWN - ALWAYS INT W/ ME!!
@@ -151,6 +156,13 @@ if i unfriend u on ponytown then u made me mad or upset ;-;
 
 . also do yall fw hakka701
 
+.
+
+someone told me to jump 😂✌️
+like atleast a 3 months ago.
+and one of my friends,joven called me a Hoe 😂✌️
+
+. 
 
 <img width="403" height="46" alt="4a5qdf" src="https://github.com/user-attachments/assets/f9665d68-28bb-424b-b43b-5ecd29267755" />
 
