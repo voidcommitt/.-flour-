@@ -1,5 +1,6 @@
-<img width="887" height="788" alt="dn0tcj" src="https://github.com/user-attachments/assets/fdbffdd4-dc7c-4217-a295-e8725c940412" />
+<img width="1051" height="895" alt="Untitled188_20250923120238" src="https://github.com/user-attachments/assets/7651a9ad-fbef-41e4-be3d-b576486f8ee4" />
 
+( pssttt.. hey sign ata pls...? )
 
 # INFORMATION ABT ME!!
  .  .
@@ -159,10 +160,10 @@ if i unfriend u on ponytown then u made me mad or upset ;-;
 .
 
 someone told me to jump 😂✌️
-like atleast a 3 months ago.
+like atleast 3 months ago.
 and one of my friends,joven called me a Hoe 😂✌️
 
 . 
 
-<img width="403" height="46" alt="4a5qdf" src="https://github.com/user-attachments/assets/f9665d68-28bb-424b-b43b-5ecd29267755" />
+<img width="1051" height="569" alt="Untitled189_20250923121758" src="https://github.com/user-attachments/assets/f32b9bf5-f449-4d91-aaa6-22c79b866853" />
 
